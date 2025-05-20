@@ -11,4 +11,5 @@ I landed here from a culmination of events:
 - I'm at the perfect spot on my journey/path now to direct focus on professional things that excite me!
 - Thankful for the variety of conversations and upskilling topics that indirectly landed me here, on GitHub.
 
-I'm always exploring, planting seeds, wanting to collaborate, and constantly curious so PLEASE bother me and teach me something new.
+I'm always exploring, planting seeds, wanting to collaborate, and constantly curious so PLEASE bother me and teach me something new. 
+Time to PLAY.
