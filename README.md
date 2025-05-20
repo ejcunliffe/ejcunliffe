@@ -12,4 +12,5 @@ I landed here from a culmination of events:
 - Thankful for the variety of conversations and upskilling topics that indirectly landed me here, on GitHub.
 
 I'm always exploring, planting seeds, wanting to collaborate, and constantly curious so PLEASE bother me and teach me something new. 
+
 Time to PLAY.
