@@ -1,7 +1,8 @@
 ## Hi there! ✨
 
-I landed here from a variety of reasons:
+I landed here from a culmination of events:
 - I have always wanted to work in a space I'm extremely passionate about. 
+- I completed a MS degree in a technologically focused discipline (informatics) because I wanted to explore the future of data.
 - I took a brief "passion" hiatus 2022-2025 during which I got married and had "two kids under two" while working full time in a newer role.
 - Focus on building my family actually gave me a refreshed mindset on what it means to go after what I want professionally which is: don't live in the fear of failure.
 - I'm at the perfect spot on my journey/path now to direct focus on professional things that excite me!
