@@ -9,6 +9,6 @@ I landed here from a culmination of events:
 - Q1 2025: Obtained PMP Certification!
 - Q2 2025: Ready to hit the ground running with the mentality that I won't live in fear of failure. UPSKILL. UPSKILL. CONNECT. UPSKILL.
 - I'm at the perfect spot on my journey/path now to direct focus on professional things that excite me!
-- I've had a variety of conversations that indirectly landed me here, on GitHub.
+- Thankful for the variety of conversations and upskilling topics that indirectly landed me here, on GitHub.
 
 I'm always exploring, planting seeds, wanting to collaborate, and constantly curious so PLEASE bother me and teach me something new.
