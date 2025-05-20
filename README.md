@@ -13,4 +13,4 @@ I landed here from a culmination of events:
 
 I'm always exploring, planting seeds, wanting to collaborate, and constantly curious so PLEASE bother me and teach me something new. 
 
-Time to PLAY.
+Time to PLAY!
